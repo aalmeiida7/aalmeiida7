@@ -11,5 +11,5 @@ meu nome e kaua almeida
 00001105926047sp@al.educacao.sp.gov.br
 
 ![](![image](https://github.com/user-attachments/assets/82365a0d-3448-4c8a-9782-4bfa0cafbd7e)
-)
+
 
